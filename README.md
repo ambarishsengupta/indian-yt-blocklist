@@ -1,0 +1,1 @@
+# indian-yt-blocklist
